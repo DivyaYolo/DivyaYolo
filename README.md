@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DivyaYolo
 - (❁´◡`❁) I’m interested in experimenting things which I learn myself!
 - 🌱 I’m currently learning, how to "unlearn" because I think that is what is the best attitude of a person who wish to learn forever!😁 " 
-- 🦋 "You Lose Your Grip And Then You Slip Into Your Masterpiece"  
+- 🦋 "You Lose Your Grip And Then You Slip Into a Masterpiece"  
 - 📫 Reach me via email = divyanitcbestudent@gmail.com
 - 😄 Pronouns: She / Her 👩‍💼💁‍♀️
 - 🚀 Fun fact: There's absolutely loads of gravity in space!
