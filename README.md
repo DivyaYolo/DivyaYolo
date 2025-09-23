@@ -3,6 +3,6 @@
 - 🦋 "You Lose Your Grip And Then You Slip Into a Masterpiece"  
 - 📫 Reach me via email = yoloside0@gmail.com
 - 😄 Pronouns: She / Her 👩‍💼💁‍♀️
-- 🚀 Fun fact: There's absolutely loads of gravity in space!
+- 🚀 IN THE PROGRAMMING WORLD "IF NOTHING GOES WRONG, THEN EVERYTHING JUST WENT RIGHT"!
 
 
